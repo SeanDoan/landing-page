@@ -1,1 +1,3 @@
-# landing-page
+- I don't own any of these properties.
+- Credit to the photographers that took the pic along with the great Man Utd club and legends.
+- This is for learning-only purpose.
